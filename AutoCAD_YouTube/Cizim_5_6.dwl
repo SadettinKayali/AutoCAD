@@ -1,0 +1,3 @@
+sadet
+DESKTOP-M5VS9DF 
+26 Aralýk 2021 Pazar  20:15:07
